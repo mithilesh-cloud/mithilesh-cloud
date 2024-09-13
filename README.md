@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Git Hub
 - 📫 How to reach me ...mithsg23@gmail.com
 - 😄 Pronouns: ...He
-- ⚡ Fun fact: ...I 
+- ⚡ Fun fact: ...I pretend good; 
 
 <!---
 mithilesh-cloud/mithilesh-cloud is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
